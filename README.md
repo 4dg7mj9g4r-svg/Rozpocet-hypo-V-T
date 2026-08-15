@@ -1,1 +1,0 @@
-# Rozpocet-hypo-V-T
